@@ -1,6 +1,5 @@
 # Sanjana Chowdary Muppuri
 
-![IMG_20240825_214410_529](https://github.com/user-attachments/assets/21eafba1-be50-4341-b5cd-84a796466530)
 ![Snapchat-1731442367](https://github.com/user-attachments/assets/a8e71c61-0061-406d-bef4-522f98aea25d)
 
 
